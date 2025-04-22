@@ -4,7 +4,7 @@
 
 - I’m currently learning **Python | Assembly (MARIE) | cybersecurity tools**
 
-- How to reach me **siluniamasha0@gmail.com**
+- How to reach me **siluniwithanaarachchi@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
